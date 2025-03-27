@@ -4,3 +4,6 @@ Rogelio, estudio Ingenieria Mecatronica porque quiero tener una base general de 
 JuandiCRACK
 Oscar el crack, el mejor programador del equipo
 Soy Mike
+
+
+hola oscar puto
